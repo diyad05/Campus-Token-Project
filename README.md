@@ -1,4 +1,4 @@
-										 CAMPUS TOKEN PROJECT
+														 CAMPUS TOKEN PROJECT
 
 Overview-
 
